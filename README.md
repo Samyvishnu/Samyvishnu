@@ -2,7 +2,7 @@
 - 👀 I’m interested in Project Management
 - 🌱 I’m currently learning Workday
 - 💞️ I’m looking to collaborate on Product Owner/Product Manager roles
-- 📫 How to reach me www.vishnuvijayakumaran.com
+- 📫 How to reach me www.vishnuvijayakumaran.com  Https://www.linkedin.com/in/vishnuvijayakumaranp 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
